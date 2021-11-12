@@ -1,6 +1,6 @@
 ### Hello.
 
-At some point I will work on something.
+I'm **uuuussseer**, a humble github person.
 
 My pinned consists of projects I like. Check them out.
 
